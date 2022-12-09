@@ -1,6 +1,4 @@
 ﻿
-Posséder pour tout coeur un viscère sans fièvres,
-
 Oh ! vie heureuse des bourgeois ! Qu'avril bourgeonne
 Ou que décembre gèle, ils sont fiers et contents.
 Ce pigeon est aimé trois jours par sa pigeonne ;
