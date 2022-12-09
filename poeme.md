@@ -43,8 +43,3 @@ Pour choyer cette femme et nourrir cette mère,
 Ils pouvaient devenir volaille comme vous.
 Mais ils sont avant tout les fils de la chimère,
 Des assoiffés d'azur, des poètes, des fous.
-
-Regardez-les, vieux coq, jeune oie édifiante !
-Rien de vous ne pourra monter aussi haut qu'eux.
-Et le peu qui viendra d'eux à vous, c'est leur fiente.
-Les bourgeois sont troublés de voir passer les gueux.
